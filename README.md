@@ -1,1 +1,1 @@
-# Stige_Intership_2022
+# Stige_Internship_2022
